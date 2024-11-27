@@ -1,1 +1,1 @@
-Learn from Hitesh Choudhury.
+Learned from Hitesh Choudhury.
